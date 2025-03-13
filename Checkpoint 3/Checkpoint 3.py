@@ -1,0 +1,1 @@
+# Gausah dibuka kada penting ini
