@@ -1,3 +1,3 @@
 # Testing-AVD
 
-Ini contohnya ygy kalau masi bingung tanya aja
+Ini contohnya ya ges ya kalau masi bingung tanya aja
